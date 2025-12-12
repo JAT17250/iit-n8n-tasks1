@@ -1,0 +1,7 @@
+![alt text](<Zrzut ekranu 2025-12-12 131437.png>)
+![alt text](<Zrzut ekranu 2025-12-12 131543.png>) 
+![alt text](<Zrzut ekranu 2025-12-12 131616.png>) 
+![alt text](<Zrzut ekranu 2025-12-12 132100.png>) 
+![alt text](<Zrzut ekranu 2025-12-12 132416.png>) 
+![alt text](<Zrzut ekranu 2025-12-12 132659.png>) 
+![alt text](<Zrzut ekranu 2025-12-12 132713.png>)
