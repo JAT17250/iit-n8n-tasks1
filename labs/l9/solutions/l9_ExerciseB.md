@@ -3,3 +3,4 @@
 ![alt text](<Zrzut ekranu 2025-12-12 125919.png>)
 ![alt text](<Zrzut ekranu 2025-12-12 131233.png>) 
 ![alt text](<Zrzut ekranu 2025-12-12 131315.png>)
+![alt text](<Zrzut ekranu 2025-12-12 133228.png>)
